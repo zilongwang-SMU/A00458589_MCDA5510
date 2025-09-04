@@ -1,1 +1,1 @@
-Hi, I am Zilong Wang, a graduate student of MCDA in Saint Mary's University. Please contact me by zilong.wang1@smu.ca. My A number is A00458589. I want to explore how to integrate the use of AI and data analytics.
+Hi, I am Zilong Wang, a graduate student of MCDA in Saint Mary's University. Please contact me by zilong.wang1@smu.ca. My A number is A00458589. I want to explore how to integrate AI and data analytics.
